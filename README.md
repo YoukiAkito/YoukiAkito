@@ -2,7 +2,7 @@
 
 ***是什么都不会的菜鸟***
 
-![D1B286FC-E6AA-4B8F-89AA-0052ECDD5C47_1_105_c](/Users/chenmeng/Pictures/Photos Library.photoslibrary/resources/derivatives/D/D1B286FC-E6AA-4B8F-89AA-0052ECDD5C47_1_105_c.jpeg)
+![ME](D1B286FC-E6AA-4B8F-89AA-0052ECDD5C47_1_105_c.jpeg)
 
 ~~但是我真可爱~~
 
