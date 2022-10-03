@@ -2,9 +2,7 @@
 
 ***是什么都不会的菜鸟***
 
-![ME](D1B286FC-E6AA-4B8F-89AA-0052ECDD5C47_1_105_c.jpeg)
 
-~~但是我真可爱~~
 
 <!--
 **YoukiAkito/YoukiAkito** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
