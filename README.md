@@ -1,6 +1,6 @@
-## 这里是璃沫莫🍥
+## This is LiMomo🍥
 
-***是什么都不会的菜鸟***
+***A tech newbie***
 
 
 
