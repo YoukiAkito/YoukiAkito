@@ -1,6 +1,6 @@
 ## This is LiMomo🍥
 
-***A tech newbie***
+***newbie***
 
 
 
