@@ -1,4 +1,4 @@
-## This is LiMomo🍥
+## LiMomo🍥
 
 ***newbie***
 
